@@ -4,7 +4,7 @@
 - 👀 I’m interested in ...oppertuines 
 - 🌱 I’m currently learning ...new project 
 - 💞️ I’m looking to collaborate on ...bussiness 
-- 📫 How to reach me ...blursur89@icloud.commm
+- 📫 How to reach me ... bri1kev1@yahoo.com
 
 <!---
 Malibudloc/Malibudloc is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
